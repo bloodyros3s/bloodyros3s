@@ -1,16 +1,26 @@
-## Hi there 👋
+  ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=red&label=stalkers?!)
 
-<!--
-**bloodyros3s/bloodyros3s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# HI. so im gonna talk about how i act, type or idk, and about the status.
 
-Here are some ideas to get you started:
+*my name mostly explains how i feel at the moment.*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-----------
+
+***How can you understand my feelings through(?) how i text!:***
+* so basically, if i put a "." after anything, that can mean i am serious, mad or sad. So um.. iwc ig?
+* i always try to find something to text back. and if i cant find, ill just put emojs or just stay silent!!😔
+* if i stay alone, that can be because im shy to go to my friends or even talk to them😭i just simply dont wanna bother ppl with myself
+* if i make no typo, then i am serious and mad or sad💓
+
+-------
+
+***Status!***
+* *away:* mostly afk or feeling comfy
+* *busy:* mostly afk again but dont want to int w someone!!
+* *looking for chat:* looking for someone to talk to.🫡 intme
+
+--------
+
+idk more but yh. ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk and c+h<3 **BYEEEEEE**
+
+![Dazai](https://github.com/aylasaurr/aylasaurr/blob/main/dazai.png)
