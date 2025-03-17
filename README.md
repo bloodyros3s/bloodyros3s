@@ -1,3 +1,5 @@
+![idk](./1.png)
+
 ![Your GIF Description](https://github.com/bloodyros3s/bloodyros2s/blob/main/tumblr_3d4752d6cec4e55834951ad5fab4ef58_00f12ec6_400.webp)   ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=red&label=stalkers?!)
 
 # HI. so im gonna talk about how i act, type or idk, and about the status.
@@ -25,3 +27,6 @@
 idk more but yh. ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk and c+h<3 **BYEEEEEE**
 
 ![Dazai](https://github.com/aylasaurr/aylasaurr/blob/main/idk)
+
+
+![idk](./2.png)
