@@ -4,7 +4,6 @@
 
 # HI. so im gonna talk about how i act, type or idk, and about the status.
 
-*my name mostly explains how i feel at the moment.*
 
 ![.](./iddk.png)
 
