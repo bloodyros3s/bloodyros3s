@@ -24,6 +24,14 @@
 
 ![.](./iddk.png)
 
+
+* **if i cuddle you, you can always go away without feeling something. I will just be confused!**
+* **if i text your atabook/strawpage so much, maybe i think about you sm😭 dont hesitate to ignore my texts!**
+* **if i dont answer your whisper or any message on ponytown, then there is 4 possibility! 1, i am afk/offtab. 2, i am shy to respond. 3, i am not interested in what you say, so pretending to be afk! or 4, i dont feel like talking. the third one is mostly to the people i dont know. dont think about it..**
+* **if i change my name so much, i am listening songs or talking with someone! it can be everything. i love to change my name like how i feel.**
+
+![.](./iddk.png)
+
 idk more but yh. ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk and c+h<3 **BYEEEEEE**
 
 ![.](https://github.com/aylasaurr/aylasaurr/blob/main/idk)
