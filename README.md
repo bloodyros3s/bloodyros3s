@@ -37,4 +37,4 @@ idk more but yh. ill update this if needed. BTW C+H FREELY!! if i have dni on my
 
 
 
-![.](./2.png)
+![.](./a.png)
