@@ -8,7 +8,7 @@
 ![.](./h.png)
 
 ***How can you understand my feelings through(?) how i text!:***
-![Your GIF Description](Sugar_coat_gacha_animation_1.webp)
+![Your GIF Description](Square_npc0002-idle.webp)
 * so basically, if i put a "." after anything, that can mean i am serious, mad or sad. So um.. iwc ig? 
 * i always try to find something to text back. and if i cant find, ill just put emojs or just stay silent!!😔
 * if i stay alone, that can be because im shy to go to my friends or even talk to them😭i just simply dont wanna bother ppl with myself 
