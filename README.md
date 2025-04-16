@@ -33,7 +33,7 @@
 
 ![.](./h.png)
 
-* **please dont force me to do something i clearly dont want to do. this includes talking.**
+**please dont force me to do something i clearly dont want to do. this includes talking.**
 
 ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk!! **BYEEEEEE**
 
