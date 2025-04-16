@@ -9,7 +9,7 @@
 
 ***How can you understand my feelings through(?) how i text!:***
 ![Your GIF Description](Square_npc0002-idle.webp)
-* so basically, if i put a "." after anything, that can mean i am serious, mad or sad. So um.. iwc ig? 
+* so basically, if i put a "." after anything, that can mean i am serious, mad or sad.
 * i always try to find something to text back. and if i cant find, ill just put emojs or just stay silent!!😔
 * if i stay alone, that can be because im shy to go to my friends or even talk to them😭i just simply dont wanna bother ppl with myself 
 * if i make no typo, then i am serious and mad or sad💓 
@@ -33,7 +33,9 @@
 
 ![.](./h.png)
 
-idk more but yh. ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk and c+h<3 **BYEEEEEE**
+* **please dont force me to do something i clearly dont want to do. this includes talking.**
+
+ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk!! **BYEEEEEE**
 
 ![.](e.jpg)
 
