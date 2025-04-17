@@ -33,6 +33,9 @@
 
 ![.](./h.png)
 
+
+*i change my style like.. everyday if i dont like my current style! sometimes i look at ppls styles and get inspired. but of course i dont do the exact same style.*
+
 **please dont force me to do something i clearly dont want to do. this includes talking.**
 
 ill update this if needed. BTW C+H FREELY!! if i have dni on my name just dont talk!! **BYEEEEEE**
