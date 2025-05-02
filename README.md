@@ -3,7 +3,7 @@
 <img src="https://64.media.tumblr.com/5947f5022603c394c65ff6c949e8fba6/66161b935a5c7738-1b/s1280x1920/5f5c27c5ac7d473d6bc1b72fc957dcadfc20d5f0.pnj" width="400"/>  ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=red&label=stalkers?!) 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312oysxkqjmrfvuqw6gqier7lwee&cover_image=true&theme=natemoo-re&show_offline=false&background_color=311c1c&interchange=false&bar_color=6c1313&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312oysxkqjmrfvuqw6gqier7lwee&cover_image=true&theme=novatorem&show_offline=false&background_color=311c1c&interchange=false&bar_color=6c1313&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 # HI. so im gonna talk about how i act, type or idk, and about the status.
 
 <img src="https://64.media.tumblr.com/eafcef653aa83b67bb0796c95a630dec/a9ba8fc663d0f62f-42/s2048x3072/a8df819dacf83b77d489fbf5a009b810fcd91ed1.gifv" width="1000"/>
