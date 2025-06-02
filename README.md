@@ -16,6 +16,6 @@
 
   <div align="center">
    
-𓊆 [a](https://bloodyros3s.atabook.org/)tabook 𓊇 ʚɞ 𓊆 [s](https://yayla.straw.page/)trawpage 𓊇
+𓊆 [α](https://bloodyros3s.atabook.org/)тαвσσк 𓊇 ʚɞ 𓊆 [ѕ](https://yayla.straw.page/)тяαωραgє 𓊇
 
 </div>
