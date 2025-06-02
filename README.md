@@ -1,4 +1,4 @@
-<img src="download%20(4).jpeg" alt="Alt text" width="1000" height="300">
+<img src="download%20(4).jpeg" alt="Alt text" width="1000" height="200">
 
 
  
