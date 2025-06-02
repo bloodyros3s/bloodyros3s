@@ -1,3 +1,5 @@
+<img src="🕊️.jpeg" alt="Dove" width="1000" height="200">
+ 
  ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=ffffff&label=𐙚) 
 
 
