@@ -1,4 +1,4 @@
-<img src="lukka.png" alt="luka">
+<img src="lukka.png" alt="luka"  width="700" height="300">
 
 
  
