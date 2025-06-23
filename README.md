@@ -4,7 +4,7 @@
  
  <div align="center">
 
-⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆ ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=D2C3F0&label=♪) ⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆
+⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆ ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=6dbcf1&label=♪) ⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆
 
 </div>
 
