@@ -16,6 +16,6 @@
 
   <div align="center">
    
-𓊆 [αтαвσσк](https://bloodyros3s.atabook.org/) 𓊇 ʚɞ 𓊆 [ѕтяαωραgє](https://angelsssoftwhispers.straw.page/) 𓊇
+𓊆 [αтαвσσк](https://bloodyros3s.atabook.org/) 𓊇 ʚɞ 𓊆 [ѕтяαωραgє](https://bloodyros3s.straw.page/) 𓊇
 
 </div>
