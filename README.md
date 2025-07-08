@@ -1,16 +1,16 @@
-<img src="lukka.png" alt="luka"  width="900" height="400">
+<img src="b.jpg" alt="bbb"  width="1000" height="300">
 
 
  
  <div align="center">
 
-⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆ ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=6dbcf1&label=♪) ⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆
+⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆ ![Your Custom Text](https://komarev.com/ghpvc/?username=aylasaurr&color=280710&label=ꫂ❁) ⋆ ˚｡⋆୨ ʚɞ ୧⋆ ˚｡⋆
 
 </div>
 
 <div align="center">
 
-<img src="js.png" alt="violin" width="200">
+<img src="cc.webp" alt="bfc" width="200">
 
 </div>
 
